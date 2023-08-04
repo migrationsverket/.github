@@ -6,6 +6,6 @@ Migrationsverkets uppdrag är bland annat att pröva ansökningar från personer
 [Läs mer om vårt uppdrag](https://www.migrationsverket.se/Om-Migrationsverket/Vart-uppdrag.html)
 
 ### Jobba på Migra­tions­verket
-På Migrationsverket är det en stor variation på arbetsuppgifter. Det kräver medarbetare med olika utbildningsbakgrund, till exempel inom juridik, rättsvetenskap, samhälls­veten­skap och inte minst IT.
+På Migrationsverket finns en stor variation av arbetsuppgifter. Det kräver medarbetare med olika utbildningsbakgrund, till exempel inom juridik, rättsvetenskap, samhälls­veten­skap och inte minst IT.
 
 [Lediga tjänster](https://www.migrationsverket.se/Om-Migrationsverket/Jobba-hos-oss/Lediga-jobb-och-intresseanmalan.html)
